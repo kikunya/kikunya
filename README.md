@@ -1,6 +1,6 @@
 ## meow
 
-<!--
+![description](05c58667d51329533f85e42aefc2c3d4.jpg)<!--
 **kikunya/kikunya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
