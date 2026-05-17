@@ -1,5 +1,4 @@
-  ![description](https://media.tenor.com/LmkFlYBYuC4AAAA1/moriarty-the-patriot-yuukoku-no-moriarty.webp)
+  ![description](https://shrill-amaranth-i7bbahgq8w.edgeone.app/William%20James%20Moriarty.jpeg)
 
  
- 
-![description](https://media.tenor.com/Eu-45EoThZAAAAA1/moriarty-moriarty-the-patriot.webp)
+
