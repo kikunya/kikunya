@@ -1,5 +1,13 @@
 <p align="center">
-  <img src="https://i.pinimg.com/originals/d5/e1/81/d5e1818b4b5acc20c824051e3b0cfbee.gif" alt="Alternate Text" width="500">
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+</p>
+
+<p align="center">
+  <img src="https://steep-blush-jnt1reqi.edgeone.app/FrWXFx4aAAUKww_.jpg" alt="Alternate Text" width="500">
+</p>
+
+<p align="center">
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 </p>
 
 <div align="center"
