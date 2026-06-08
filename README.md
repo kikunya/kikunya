@@ -16,7 +16,7 @@
 
 <div align="center"
 
-[atabook](https://kikunyan.atabook.org)ㅤㅤㅤㅤ [strawpage](https://cutekikunya.straw.page)
+[*atabook*](https://kikunyan.atabook.org)ㅤㅤㅤㅤ [*strawpage*](https://cutekikunya.straw.page)
 
 <p align="center">
   ———————————————————
