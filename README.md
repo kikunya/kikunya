@@ -16,7 +16,7 @@
 
 <div align="center"
 
-[*atabook*](https://kikunyan.atabook.org)ㅤㅤㅤㅤ [*strawpage*](https://zankawaii.straw.page)
+[*atabook*](https://kikunyan.atabook.org)ㅤㅤㅤㅤ [*strawpage*](https://zankawaii.straw.page) ㅤㅤㅤㅤ [*shared strawpage*](https://asushinji.straw.page)
 
 <p align="center">
   ———————————————————
