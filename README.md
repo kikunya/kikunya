@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <img src="https://steep-blush-jnt1reqi.edgeone.app/FrWXFx4aAAUKww_.jpg" alt="Alternate Text" width="500">
+  <img src="https://clumsy-beige-cpfskysc.edgeone.app/1661-removebg-preview.png" alt="Alternate Text" width="500">
 </p>
 
 <p align="center">
