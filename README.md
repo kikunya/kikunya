@@ -1,5 +1,5 @@
 <p align="center">
-  —————————★—————————
+  —————————✦—————————
 </p>
 
 <p align="center">
@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <img src="https://clumsy-beige-cpfskysc.edgeone.app/1661-removebg-preview.png" alt="Alternate Text" width="500">
+  <img src="https://busy-red-uwyxnzry.edgeone.app/82ed0d1f95795dca08e6b9927cbfed21.jpg" alt="Alternate Text" width="500">
 </p>
 
 <p align="center">
