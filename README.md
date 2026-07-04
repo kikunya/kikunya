@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://intellectual-white-44hlpatm.edgeone.app/Tumblr_l_28279349718926.jpg" alt="Alternate Text" width="100"> <img src="https://interior-yellow-tltt1zlm.edgeone.app/Tumblr_l_28423398226938.gif" alt="Alternate Text" width="300">
+  <img src="https://intellectual-white-44hlpatm.edgeone.app/Tumblr_l_28279349718926.jpg" alt="Alternate Text" width="100"> 
 </p>
 
 
