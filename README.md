@@ -24,5 +24,5 @@
 </p>  <p align="center">
 
 <p align="center">
-  <img src="https://disturbed-indigo-nx0qyhgv.edgeone.app/Tumblr_l_220824604143361.jpg" alt="Alternate Text" width="200">
+  <img src="https://disturbed-indigo-nx0qyhgv.edgeone.app/Tumblr_l_220824604143361.jpg" alt="Alternate Text" width="100">
 </p>
