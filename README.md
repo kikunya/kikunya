@@ -9,7 +9,7 @@
 
 
 <p align="center">
-  <img src="https://media.tenor.com/BFAf2B0a6bkAAAA1/park-jihoon-angry-park-jihoon-mad.webp" alt="Alternate Text" width="500">
+  <img src="https://i.pinimg.com/originals/ef/f3/e2/eff3e289a49ce4c83d577657f2786503.gif" alt="Alternate Text" width="400">
 </p>
 
 
