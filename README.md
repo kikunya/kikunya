@@ -25,3 +25,9 @@
 <p align="center">
   <img src="https://disturbed-indigo-nx0qyhgv.edgeone.app/Tumblr_l_220824604143361.jpg" alt="Alternate Text" width="100">
 </p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31p6xnkpdibhnbxctzqbvlzuzr2m&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffbffb&interchange=false&profanity=false&hide_remaster=false&bar_color=ae44e3&bar_color_cover=true">
+  </a>
+</p>
