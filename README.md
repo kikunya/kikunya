@@ -9,7 +9,7 @@
 
 <div align="center"
   
-ㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&size=15&pause=1000&color=B89FE5&width=435&lines=I+wish;everybody+would+just+leave+me+alone;as+if;i+wasn't+there.)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&size=15&pause=1000&color=B89FE5&width=435&lines=I+wish;everybody+would+just+leave+me+alone;as+if;i+wasn't+there.)
 
 <p align="center">
   <img src="https://i.pinimg.com/originals/ef/f3/e2/eff3e289a49ce4c83d577657f2786503.gif" alt="Alternate Text" width="400">
