@@ -9,7 +9,7 @@
 
 
 <p align="center">
-  <img src="https://media.tenor.com/46h_3N_z5GAAAAAM/sieun-chair-park-jihoon-mad.gif" alt="Alternate Text" width="400">
+  <img src="https://i.pinimg.com/originals/ef/f3/e2/eff3e289a49ce4c83d577657f2786503.gif" alt="Alternate Text" width="400">
 </p>
 
 
