@@ -36,3 +36,8 @@
 <p align="center">
   <img src="https://disturbed-indigo-nx0qyhgv.edgeone.app/Tumblr_l_220824604143361.jpg" alt="Alternate Text" width="100">
 </p>
+
+<p align="center">
+  <img src="https://media1.tenor.com/m/5GGbBC3oIikAAAAC/yeon-sieun-whc1.gif" alt="Alternate Text" width="200">
+</p>
+
