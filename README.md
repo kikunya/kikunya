@@ -37,6 +37,6 @@
 </p>
 
 <p align="center">
-  <img src="https://media1.tenor.com/m/5GGbBC3oIikAAAAC/yeon-sieun-whc1.gif" alt="Alternate Text" width="200">
+  <img src="https://media1.tenor.com/m/mny96PBK3lYAAAAC/sieun-yeon-sieun.gif" alt="Alternate Text" width="250">
 </p>
 
