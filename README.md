@@ -9,8 +9,7 @@
 
 <div align="center"
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&size=15&pause=1000&color=B89FE5&width=435&lines=I+wish;everybody+would+just+leave+me+alone;as+if;i+wasn't+there.)
-
+ㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&size=15&pause=1000&color=6371928B&width=435&lines=Do+you+know+Newton's+third+law%3F;For+every+action%2C+there+is+an+equal+and+opposite+reaction.;I+wish+everyone+would+leave+me+alone+as+if+I+didn't+exist.;Suho-ya%2C+I+got+into+another+fight%2C+I'm+sorry.)](https://git.io/typing-svg)
 <p align="center">
   <img src="https://i.pinimg.com/originals/ef/f3/e2/eff3e289a49ce4c83d577657f2786503.gif" alt="Alternate Text" width="400">
 </p>
