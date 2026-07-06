@@ -1,15 +1,15 @@
 <p align="center">
-  <img src="https://intellectual-white-44hlpatm.edgeone.app/Tumblr_l_28279349718926.jpg" alt="Alternate Text" width="50"> 
+  <img src="https://concerned-amaranth-30lx4djp.edgeone.app/Tumblr_l_192261997843637.gif" alt="Alternate Text" width="70" 
 </p>
 
 
 <p align="center">
-  <img src="https://fair-gray-zp0glhe4.edgeone.app/Tumblr_l_28132954375492.gif" alt="Alternate Text" width="200"><img src="https://fair-gray-zp0glhe4.edgeone.app/Tumblr_l_28132954375492.gif" alt="Alternate Text" width="200"
+  <img src="https://sixsevensevensix.edgeone.app/Tumblr_l_192382583885935.jpg" alt="Alternate Text" width="300"><img src="https://sixsevensevensix.edgeone.app/Tumblr_l_192382583885935.jpg" alt="Alternate Text" width="300"
 </p>  
 
 <div align="center"
   
-ㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&size=15&pause=1000&color=6371928B&width=435&lines=Do+you+know+Newton's+third+law%3F;For+every+action%2C+there+is+an+equal+and+opposite+reaction.;I+wish+everyone+would+leave+me+alone+as+if+I+didn't+exist.;Suho-ya%2C+I+got+into+another+fight%2C+I'm+sorry.)](https://git.io/typing-svg)
+ㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&size=15&pause=1000&color=FFFFFF&width=435&lines=Do+you+know+Newton's+third+law%3F;For+every+action%2C+there+is+an+equal+and+opposite+reaction.;I+wish+everyone+would+leave+me+alone+as+if+I+didn't+exist.;Suho-ya%2C+I+got+into+another+fight%2C+I'm+sorry.)](https://git.io/typing-svg)
 <p align="center">
   <img src="https://i.pinimg.com/originals/ef/f3/e2/eff3e289a49ce4c83d577657f2786503.gif" alt="Alternate Text" width="400">
 </p>
@@ -22,7 +22,7 @@
 
 
 <p align="center">
-  <img src="https://fair-gray-zp0glhe4.edgeone.app/Tumblr_l_28132954375492.gif" alt="Alternate Text" width="200"><img src="https://fair-gray-zp0glhe4.edgeone.app/Tumblr_l_28132954375492.gif" alt="Alternate Text" width="200">
+  <img src="https://sixsevensevensix.edgeone.app/Tumblr_l_192382583885935.jpg" alt="Alternate Text" width="300"><img src="https://sixsevensevensix.edgeone.app/Tumblr_l_192382583885935.jpg" alt="Alternate Text" width="300">
 
 
 
@@ -40,3 +40,6 @@
   <img src="https://media1.tenor.com/m/5GGbBC3oIikAAAAC/yeon-sieun-whc1.gif" alt="Alternate Text" width="200">
 </p>
 
+<p alignt="center">
+   <img src="https://media1.tenor.com/m/mny96PBK3lYAAAAC/sieun-yeon-sieun.gif" alt="Alternate Text" width="200">
+</p>
