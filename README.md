@@ -26,7 +26,7 @@
   <img src="https://silky-azure-t5dqozxs.edgeone.dev/file.png" alt="Alternate Text" width="300"><img src="https://silky-azure-t5dqozxs.edgeone.dev/file.png" alt="Alternate Text" width="300">
 
 <p align="center">
-  <img src="https://immense-beige-0dlubl0r.edgeone.dev/file.png" alt="Alternate Text" width="200">
+  <img src="https://immense-beige-0dlubl0r.edgeone.dev/file.png" alt="Alternate Text" width="150">
 </p>
 
 
