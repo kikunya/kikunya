@@ -8,9 +8,9 @@
 <p align="center">
   <img src="https://s4.ezgif.com/tmp/ezgif-4704f1f70f27889c.jpg" alt="Alternate Text" width="400">
 </p>
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
-ㅤㅤㅤㅤㅤ(..◜ᴗ◝..)ㅤㅤ
+૮ ◞ ﻌ ◟ ა
 </p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<div align="center">
 
-[atabook](https://kikunyan.atabook.org)ㅤㅤ [strawpage](https://kawaiicine.straw.page)ㅤㅤ [shared sp](https://asushinji.straw.page)
+  [新book](https://kikunyan.atabook.org)ㅤ ₊ㅤ [strawpage](https://kawaiicine.straw.page)ㅤ
