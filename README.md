@@ -3,14 +3,14 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=PT+Serif&pause=50&color=E26E2CEB&background=FFFFFF00&center=true&width=300&lines=you've+realized+it%2C+haven't+you%3F;the+real%2C+real%2C+real+me.;isn't+made+of+love+and+dreams.;that's+right%2C+I'm+made+of+meat.)](https://git.io/typing-svg)
-</div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&duration=4000&pause=30&color=E23500EB&background=FFFFFF00&center=true&width=435&lines=you+say+that+but...;you've+realized+it,+haven't+you%3F;the+real%2C+real%2C+real+me.;isn't+made+of+love+and+dreams.;that's+right%2C+i'm+made+of+meat;meat%2C+meat%2C+...+meat.)](https://git.io/typing-svg)
+</div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
-  <img src="https://s4.ezgif.com/tmp/ezgif-4704f1f70f27889c.jpg" alt="Alternate Text" width="400">
+  <img src="https://s4.ezgif.com/tmp/ezgif-4704f1f70f27889c.jpg" alt="Alternate Text" width="300">
 </p>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
 ૮ ◞ ﻌ ◟ ა
 </p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<div align="center">
 
-  [新book](https://kikunyan.atabook.org)ㅤ ₊ㅤ [strawpage](https://kawaiicine.straw.page)ㅤ
+ㅤㅤㅤ  [新book](https://kikunyan.atabook.org)ㅤㅤ ₊ㅤ ㅤ[strawpage](https://kawaiicine.straw.page)ㅤ
