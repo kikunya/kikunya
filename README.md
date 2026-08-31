@@ -14,3 +14,7 @@
 </p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<div align="center">
 
 ㅤㅤㅤ  [新book](https://kikunyan.atabook.org)ㅤㅤ ₊ㅤ ㅤ[strawpage](https://kawaiicine.straw.page)ㅤ
+
+<p align="center">
+@iostsorrows
+</p>
