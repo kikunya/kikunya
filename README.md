@@ -13,5 +13,5 @@
 ૮ ◞ ﻌ ◟ ა
 </p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<div align="center">
 
-ㅤㅤㅤ  [新book](https://kikunyan.atabook.org)ㅤㅤ ₊ㅤ ㅤ[strawpage](https://kawaiicine.straw.page)ㅤ
+ㅤㅤㅤ  [新book](https://kikunyan.atabook.org)ㅤㅤ ₊ㅤ ㅤ[strawpage](https://bunninya.straw.page)ㅤ
 
