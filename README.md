@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://charming-chocolate-wqjqltku.edgeone.dev/file.png" alt="Alternate Text" width="200"><img src="https://charming-chocolate-wqjqltku.edgeone.dev/file.png" alt="Alternate Text" width="200">
+<img src="https://charming-chocolate-wqjqltku.edgeone.dev/file.png" alt="Alternate Text" width="300"><img src="https://charming-chocolate-wqjqltku.edgeone.dev/file.png" alt="Alternate Text" width="300">
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
@@ -17,5 +17,5 @@
 ㅤㅤㅤ[新book](https://kikunyan.atabook.org)ㅤㅤ ₊ㅤ ㅤ[strawpage](https://symmeowtry.straw.page)ㅤ
 
 <p align="center">
-<img src="https://daily-bronze-nqqvgnuj.edgeone.dev/file.png" alt="Alternate Text" width="200"><img src="https://daily-bronze-nqqvgnuj.edgeone.dev/file.png" alt="Alternate Text" width="200">
+<img src="https://daily-bronze-nqqvgnuj.edgeone.dev/file.png" alt="Alternate Text" width="300"><img src="https://daily-bronze-nqqvgnuj.edgeone.dev/file.png" alt="Alternate Text" width="300">
 </p>
