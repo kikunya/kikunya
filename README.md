@@ -11,7 +11,7 @@
 <p align="center">
   <img src="https://established-amethyst-imqbfhs8.edgeone.dev/file.png" alt="Alternate Text" width="500" length="50">
 </p>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<div align="center">
+<div align="center">
 
 ㅤㅤㅤ新[book](https://kikunyan.atabook.org)ㅤㅤ ₊ㅤ ㅤstraw[page](https://symmeowtry.straw.page)ㅤ
 
