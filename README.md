@@ -15,6 +15,6 @@
 
 ㅤㅤㅤ新[book](https://kikunyan.atabook.org)ㅤㅤ ₊ㅤ ㅤstraw[page](https://symmeowtry.straw.page)ㅤ
 
-<p align="center">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">
 <img src="https://daily-bronze-nqqvgnuj.edgeone.dev/file.png" alt="Alternate Text" width="300"><img src="https://daily-bronze-nqqvgnuj.edgeone.dev/file.png" alt="Alternate Text" width="300">
 </p>
