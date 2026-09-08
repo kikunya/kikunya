@@ -7,7 +7,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&duration=4000&pause=30&color=FFFFFFEB&background=FFFFFF00&center=true&width=435&lines=you+say+that+but...;you've+realized+it,+haven't+you%3F;the+real%2C+real%2C+real+me.;isn't+made+of+love+and+dreams.;that's+right%2C+i'm+made+of+meat;meat%2C+meat%2C+...+meat.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Crimson+Text&pause=1000&color=D5D5D5&center=true&lines=Symmetry+is+what+makes+the+world+beautiful.;No%2C+it+can't+be+7!+Say+8%2C+dammit!+8+is+better!;Perfect+balance+is+the+key+to+everything.)](https://git.io/typing-svg)
 </div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
   <img src="https://established-amethyst-imqbfhs8.edgeone.dev/file.png" alt="Alternate Text" width="500" length="50">
