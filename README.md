@@ -14,7 +14,7 @@
 </p>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<div align="center">
 
-ㅤㅤㅤ[新book](https://kikunyan.atabook.org)ㅤㅤ ₊ㅤ ㅤ[strawpage](https://symmeowtry.straw.page)ㅤ
+ㅤㅤㅤ新[book](https://kikunyan.atabook.org)ㅤㅤ ₊ㅤ ㅤstraw[page](https://symmeowtry.straw.page)ㅤ
 
 <p align="center">
 <img src="https://daily-bronze-nqqvgnuj.edgeone.dev/file.png" alt="Alternate Text" width="300"><img src="https://daily-bronze-nqqvgnuj.edgeone.dev/file.png" alt="Alternate Text" width="300">
