@@ -2,7 +2,7 @@
 
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=kikunya&label=カイト&color=89BCBC)
+  ![](https://komarev.com/ghpvc/?username=kikunya&label=カ+イ+ト&color=89BCBC)
 </div>
 
   
