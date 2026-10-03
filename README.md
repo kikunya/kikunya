@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
- <img src="https://cdn.phototourl.com/member/2026-10-03-3e847ed0-219a-4dd5-a2fd-3b03702f02d1.png" alt="Alternate Text" width="300" length="50"> 
+ <img src="https://cdn.phototourl.com/member/2026-10-03-3e847ed0-219a-4dd5-a2fd-3b03702f02d1.png" alt="Alternate Text" width="350" length="50"> 
 </p>
 
 
