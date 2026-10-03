@@ -13,8 +13,8 @@
 
 <p align="center">
   <a href="https://kikunyan.atabook.org/">
-  <img src="https://cdn.phototourl.com/member/2026-10-03-0649ec80-3bb1-4a40-81d6-059f1729bb0b.png" alt="Alt Text" width="110">ㅤ <a href="https://lrot.straw.page/">
-  <img src="https://cdn.phototourl.com/member/2026-10-03-a9bf63a4-3aa5-4d22-984c-a48fae18da27.png" alt="Alt Text" width="110">
+  <img src="https://cdn.phototourl.com/member/2026-10-03-a716186d-1a25-4f1f-aa8d-8a50464d04b6.png" alt="Alt Text" width="110">ㅤ <a href="https://lrot.straw.page/">
+  <img src="https://cdn.phototourl.com/member/2026-10-03-f9e69f9a-5741-43ee-9835-fc739cb95855.png" alt="Alt Text" width="125">
 </p>
 
 
