@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-03-6d4c45bb-2218-4068-be69-e87638e713a6.png" alt="Alternate Text" width="300" length="50">
+  <img src="https://cdn.phototourl.com/member/2026-10-03-3e847ed0-219a-4dd5-a2fd-3b03702f02d1.png" alt="Alternate Text" width="300" length="50">
 </p>
 
 
@@ -14,7 +14,7 @@
 <p align="center">
   <a href="https://kikunyan.atabook.org/">
   <img src="https://cdn.phototourl.com/member/2026-10-03-0649ec80-3bb1-4a40-81d6-059f1729bb0b.png" alt="Alt Text" width="120"> <a href="https://kikunyaaa.straw.page/">
-  <img src="https://cdn.phototourl.com/member/2026-10-03-4ffc5d3b-e490-41c6-acf6-0f42f5c53f29.png" alt="Alt Text" width="120">
+  <img src="https://cdn.phototourl.com/member/2026-10-03-a9bf63a4-3aa5-4d22-984c-a48fae18da27.png" alt="Alt Text" width="120">
 </p>
 
 
