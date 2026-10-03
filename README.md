@@ -1,4 +1,9 @@
-![](https://komarev.com/ghpvc/?username=kikunya)
+
+<div align="center">
+  
+  ![](https://komarev.com/ghpvc/?username=kikunya&color=blue)
+</div>
+
   
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
