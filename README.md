@@ -1,20 +1,7 @@
-<p align="center">
-<img src="https://charming-chocolate-wqjqltku.edgeone.dev/file.png" alt="Alternate Text" width="300"><img src="https://charming-chocolate-wqjqltku.edgeone.dev/file.png" alt="Alternate Text" width="300">
-</p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-<div align="center">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Crimson+Text&pause=1000&color=D5D5D5&center=true&lines=Symmetry+is+what+makes+the+world+beautiful.;No%2C+it+can't+be+7!+Say+8%2C+dammit!+8+is+better!;Perfect+balance+is+the+key+to+everything.)](https://git.io/typing-svg)
-</div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
-  <img src="https://established-amethyst-imqbfhs8.edgeone.dev/file.png" alt="Alternate Text" width="500" length="50">
+  <img src="https://cdn.phototourl.com/member/2026-10-03-6188bcc3-4672-4a32-b8e1-6c02d902b297.png" alt="Alternate Text" width="500" length="50">
 </p>
-<div align="center">
 
-ㅤㅤㅤ新[book](https://kikunyan.atabook.org)ㅤㅤ ₊ㅤ ㅤstraw[page](https://kikunyaaa.straw.page)ㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">
-<img src="https://daily-bronze-nqqvgnuj.edgeone.dev/file.png" alt="Alternate Text" width="300"><img src="https://daily-bronze-nqqvgnuj.edgeone.dev/file.png" alt="Alternate Text" width="300">
-</p>
