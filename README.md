@@ -1,7 +1,9 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <div align="center">
   
-  ![nya](https://komarev.com/ghpvc/?username=kikunya&label=pawns&color=89BCBC)
+  ![nya~](https://komarev.com/ghpvc/?username=kikunya&label=pawns&color=89bcbc)
+  
+  
 </div>
 
   
