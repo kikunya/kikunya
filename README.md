@@ -6,7 +6,7 @@
 <p align="center">
   <img src="https://cdn.phototourl.com/member/2026-10-26-fb6100e0-4a27-4524-bdae-96c790508f7a.png" alt="nya" width="500" length="50">
 </p> <p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-26-03adad9c-fda1-4a00-83cb-150f429fcc05.png" alt="nya~" width="300">
+  <img src="https://cdn.phototourl.com/member/2026-10-26-1abdbbb8-27b7-474b-8e3d-c6af288d4d45.png" alt="nya~" width="300">
 </p>
 
 
