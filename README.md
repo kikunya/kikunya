@@ -4,17 +4,16 @@
 
   
 <p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-26-fb6100e0-4a27-4524-bdae-96c790508f7a.png" alt="nya" width="450" length="50">
-</p>
-<p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-26-03adad9c-fda1-4a00-83cb-150f429fcc05.png" alt="nya~" width="450">
+  <img src="https://cdn.phototourl.com/member/2026-10-26-fb6100e0-4a27-4524-bdae-96c790508f7a.png" alt="nya" width="500" length="50">
+</p> <p align="center">
+  <img src="https://cdn.phototourl.com/member/2026-10-26-03adad9c-fda1-4a00-83cb-150f429fcc05.png" alt="nya~" width="300">
 </p>
 
 
 <p align="center">
   <a href="https://kikunyan.atabook.org/">
-  <img src="https://cdn.phototourl.com/member/2026-10-26-cc30b343-d067-487e-8cc1-673e84f81caf.png" alt="nya" width="110">ㅤ <a href="https://lrot.straw.page/">
-  <img src="https://cdn.phototourl.com/member/2026-10-26-50642c4d-1c49-4072-ae7f-c21b8dc577ca.png" alt="nya" width="125">
+  <img src="https://cdn.phototourl.com/member/2026-10-26-cc30b343-d067-487e-8cc1-673e84f81caf.png" alt="nya" width="90">ㅤ <a href="https://lrot.straw.page/">
+  <img src="https://cdn.phototourl.com/member/2026-10-26-50642c4d-1c49-4072-ae7f-c21b8dc577ca.png" alt="nya" width="95">
 </p>
 
 <p align="center">
