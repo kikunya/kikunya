@@ -11,7 +11,7 @@
 
 
 <p align="center">
-  <a href="https://kikunyan.atabook.org/">
+  <a href="https://uyujin.atabook.org/">
   <img src="https://cdn.phototourl.com/member/2026-10-26-cc30b343-d067-487e-8cc1-673e84f81caf.png" alt="nya" width="85">ㅤ <a href="https://lrot.straw.page/">
   <img src="https://cdn.phototourl.com/member/2026-10-26-50642c4d-1c49-4072-ae7f-c21b8dc577ca.png" alt="nya" width="95">
 </p>
