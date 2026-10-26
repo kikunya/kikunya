@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-04-3dd3fe8e-26f0-4bd9-82e8-2ef3ee565c92.gif" alt="nya~" width="450">
+  <img src="https://cdn.phototourl.com/member/2026-10-04-3dd3fe8e-26f0-4bd9-82e8-2ef3ee565c92.gif" alt="nya~" width="300">
 </p>
 
   
@@ -18,7 +18,7 @@
 </p>
 
 <p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-04-3dd3fe8e-26f0-4bd9-82e8-2ef3ee565c92.gif" alt="nya~" width="450">
+  <img src="https://cdn.phototourl.com/member/2026-10-04-3dd3fe8e-26f0-4bd9-82e8-2ef3ee565c92.gif" alt="nya~" width="300">
 </p>
 
 
